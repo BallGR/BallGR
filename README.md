@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @BallGR
-- 👀 I’m interested in I'm interested in these codes I hope someone will help me to learn more
+- 👀 I’m interested in these codes I hope someone will help me to learn more
 - 🌱 I’m currently learning somethings different,because this interesting
 - 💞️ I’m looking to collaborate on this web to develops my skill
 - 📫 How to reach me  maybe next time I'll add some description
